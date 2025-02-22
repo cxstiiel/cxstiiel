@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=red&style=plasic&abbreviated=true&label=𓆩♡𓆪">
 </p>
 <p align="center">
-  hi im that one homelander and castiel pony
+  hi im that one homelander and castiel pony ᵔᴗᵔ
 </p>
 
 <p align="center">
@@ -10,11 +10,11 @@
 </p>
 
 <p align="center">
-int ‎╱ ‎c+h⠀freely⠀!
+int ‎ﾉ ‎c+h⠀freely⠀!
 </p>
 
 <p align="center">
-mostly⠀afk⠀⠀𓏵⠀⠀w2i
+mostly⠀afk⠀⠀𓈉⠀⠀w2i
 </p>
 
 <p align="center">
