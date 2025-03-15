@@ -1,9 +1,5 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=blue&style=plasic&abbreviated=true&label=𓆩♡𓆪">
-</p>
-<p align="center">
-  hi guys i LOVE my bf ᵔᴗᵔ
-</p>
 
 <p align="center">
   matching profiles with @yaoikat ˚ʚ♡ɞ˚
