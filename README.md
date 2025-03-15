@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=blue&style=plasic&abbreviated=true&label=𓆩♡𓆪">
 </p>
 <p align="center">
-  hi im that one homelander and hughie and castiel pony ᵔᴗᵔ
+  hi guys i LOVE my bf ᵔᴗᵔ
 </p>
 
 <p align="center">
